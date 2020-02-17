@@ -5,3 +5,6 @@ https://www.christianitytoday.com/biblestudies/articles/theology/secret-of-walki
 
 # Micah 6:8
 ![](https://missionventureministries.files.wordpress.com/2012/03/micah-6-vs-8.jpg)
+
+
+https://www.cgg.org/index.cfm/fuseaction/Library.sr/CT/HWA/k/469/Where-Are-Enoch-Elijah.htm
